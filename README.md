@@ -3,7 +3,7 @@
 **Free Offer Alert:**  
 Before diving into the article, we have an exciting **FREE offer** for all Pokémon GO fans! Get your hands on **FREE Pokécoins** today and level up your Pokémon journey in 2025. To claim your **free Pokécoins**, simply follow the steps mentioned below. Don’t miss out – this offer is available for a limited time only! 
 
-### [✅👉CLICK HERE TO GET NOW FREE!](https://freeforyou.xyz/pokemon/go/free/)
+### [✅👉 CLICK HERE TO GET NOW FREE](https://justfree.xyz/pokemon/go/)
 
 Pokémon GO, the popular augmented reality mobile game, continues to captivate millions of players around the world. One of the most crucial in-game currencies, **Pokécoins**, is essential for purchasing various items, including Poké Balls, Lures, Incense, Egg Incubators, and even premium passes for raids and events. However, as many players know, earning Pokécoins can be a challenge. This article will guide you through **how to get FREE Pokécoins in Pokémon GO** on both **iOS** and **Android** devices, especially in 2025, when the game is continuously evolving with new features and updates.
 
